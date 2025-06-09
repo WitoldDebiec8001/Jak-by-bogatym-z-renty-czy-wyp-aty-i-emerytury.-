@@ -23,3 +23,4 @@ Olej procesor policji ich NGO nie bądź miś.  Bądź przystojny.
 Nie dawaaj na kleche i śmiej się z niego. A będziesz bogaty bo stracisz złoto przez kleche. 
 Nie bądź miś NGO nie miej serca bądź jak Conan. A cel do bogactwa jest prosty. 
 Nie służ panom tylko sam stań sie panem. 
+Produkuj energię rowerem dynamem zbuduj oszczędzacz akumulator kwantowy w chinach. Nic nie dawaj na elektryka i energetyka PGE bo to mafia jest. Wierz ile pieniedzy można czasem dać ubogim sam nie wiesz. 
