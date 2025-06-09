@@ -28,3 +28,4 @@ Chcesz być bogatym w dupie miej kota. Walcz od Red Sonaje.
 Pomagaj słabym ale nie zasilaj frajerów. 
 Chcesz być bogatym to zrób tak aby Politycy i energetycy i elektrycy srali pod siebie jak Conan będziesz boagaty. 
 Droga do perpetum mobile to konwersja energi na inne energie np.: pedałowanie na rowerze generatorze, Magazynowanie energi w oszczędzaczu i akumulatorze. 
+Ćwicz ciało i unikaj biedy. Bo Bieda to PGE. 
