@@ -19,3 +19,4 @@ Nie chodż do kościoła.
 Ignoruj religijnych.
 Myśl tylko o bogactwie. 
 Myśl jak oszczędzacz i rezygnuj z miłości i przyjemności kup vois jak nie stać cię na miłość z populacji vois w kocu i swterze mocherowym. Nie kupuj oszczędzaczy i badziewiaków. 
+Olej procesor policji ich NGO nie bądź miś.  Bądź przystojny. 
