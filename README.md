@@ -1,1 +1,20 @@
 # Jak-by-bogatym-z-renty-czy-wyp-aty-i-emerytury.-
+Zrezygnuj z dawania na WOŚP i powiedz im aby wzieli kredyt w NBP lub im wydrukowali pieniadze.
+Zrezygnuj z dodtacji.
+Zrezygnuj z firmy.
+Zrezygnuj z fajek i dużej ilości jedzenia.
+Myśl o przyszłości jak Projekt Awatar 2045. 
+Nie graj w gry.
+Nie inewstuj pieniedzy w lokaty i fundusze inewstycyjne i nieruchomości.
+Trzymaj pieniadze na konice oszczędnościowym i porzyczaj pieniadze na procent do banku na książeczke PKO.
+Nie trzymaj pieniedzy w para banku. 
+Naucz się być procesor. 
+Nie pomagaj za darmo i tanio.
+Wymagaj od ludzi aby ci płacili i nie trakotwali ciebie jak wolntrariusza policji tylko najemnika pamietaj droga do bogactwa to nie pomocy. 
+Ignoruj byciem darczyńcą.
+Nie odawaj krwi. 
+Gdzieś miej bycie psem. 
+Człowiek to procesor nie bateria. 
+Nie chodż do kościoła. 
+Ignoruj religijnych.
+Myśl tylko o bogactwie. 
