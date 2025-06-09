@@ -26,3 +26,4 @@ Nie służ panom tylko sam stań sie panem.
 Produkuj energię rowerem dynamem zbuduj oszczędzacz akumulator kwantowy w chinach. Nic nie dawaj na elektryka i energetyka PGE bo to mafia jest. Wierz ile pieniedzy można czasem dać ubogim sam nie wiesz. 
 Chcesz być bogatym w dupie miej kota. Walcz od Red Sonaje. 
 Pomagaj słabym ale nie zasilaj frajerów. 
+Chcesz być bogatym to zrób tak aby Politycy i energetycy i elektrycy srali pod siebie jak Conan będziesz boagaty. 
