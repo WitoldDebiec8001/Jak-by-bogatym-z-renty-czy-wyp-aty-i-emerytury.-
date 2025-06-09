@@ -21,3 +21,4 @@ Myśl tylko o bogactwie.
 Myśl jak oszczędzacz i rezygnuj z miłości i przyjemności kup vois jak nie stać cię na miłość z populacji vois w kocu i swterze mocherowym. Nie kupuj oszczędzaczy i badziewiaków. 
 Olej procesor policji ich NGO nie bądź miś.  Bądź przystojny. 
 Nie dawaaj na kleche i śmiej się z niego. A będziesz bogaty bo stracisz złoto przez kleche. 
+Nie bądź miś NGO nie miej serca bądź jak Conan. A cel do bogactwa jest prosty. 
